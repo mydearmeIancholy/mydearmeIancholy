@@ -7,3 +7,5 @@
 </p>
 
 [rentry](https://rentry.co/mydearmelancholy) ☆ [ata](https://mydearmelancholy.atabook.org/)
+
+strawpage being made, may taken 20,000 years to make
