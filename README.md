@@ -8,4 +8,6 @@
 
 [rentry](https://rentry.co/mydearmelancholy) ☆ [ata](https://mydearmelancholy.atabook.org/)
 
-strawpage being made, may taken 20,000 years to make
+　
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=1jmauoiey1bc9bmjnwz3b88ny&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=639ac5&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
