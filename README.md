@@ -6,7 +6,7 @@
   <img src="https://files.catbox.moe/qimd3t.png"><img src="https://files.catbox.moe/l84bme.png">
 </p>
 
-my husband of 8 years, I love you so much!
+my husband of 6 years, I love you so much!
 
 [rentry](https://rentry.co/mydearmelancholy) ☆ [ata](https://mydearmelancholy.atabook.org/)
 
