@@ -6,8 +6,8 @@
   <img src="https://files.catbox.moe/qimd3t.png"><img src="https://files.catbox.moe/l84bme.png">
 </p>
 
-(konata self-insert)
-my beloved husband of 6 years!
+
+my beloved [husband](https://wiki.teamfortress.com/wiki/Demoman_) of 8 years, I love you so much!
 
 [rentry](https://rentry.co/mydearmelancholy) ☆ [ata](https://mydearmelancholy.atabook.org/)
 
