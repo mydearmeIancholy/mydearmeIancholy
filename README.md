@@ -6,7 +6,8 @@
   <img src="https://files.catbox.moe/qimd3t.png"><img src="https://files.catbox.moe/l84bme.png">
 </p>
 
-my husband of 6 years, I love you so much!
+(konata self-insert)
+my beloved husband of 6 years!
 
 [rentry](https://rentry.co/mydearmelancholy) ☆ [ata](https://mydearmelancholy.atabook.org/)
 
