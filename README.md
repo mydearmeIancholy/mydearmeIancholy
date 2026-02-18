@@ -9,11 +9,4 @@
 
 my beloved [husband](https://wiki.teamfortress.com/wiki/Demoman_) of 8 years, I love you so much!
 
-[main rentry](https://rentry.co/mydearmelancholy) ☆ [ata](https://mydearmelancholy.atabook.org/)
-
-
-happy lunar new year! 🐎🔥
-
-<p align="center">
-  <img src="https://files.catbox.moe/pt0xdl.png">
-</p>
+[main rentry](https://rentry.co/mydearmelancholy)
