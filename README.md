@@ -1,11 +1,11 @@
 <div align="center">
 
-<p align="center"><img src="https://komarev.com/ghpvc/?username=mydearmeIancholy&color=657cc2&style=flat&label=CHUDLINGS"/></p> 
+<p align="center"><img src="https://komarev.com/ghpvc/?username=mydearmeIancholy&color=1c1c1c&style=flat&label=chudlings"/></p> 
 
 <p align="center">
-  <img src="https://files.catbox.moe/qimd3t.png"><img src="https://files.catbox.moe/l84bme.png">
+  <img src="https://files.catbox.moe/50zs6l.png"><img src="https://files.catbox.moe/hlnjp3.png">
 </p>
 
+why dis 👤 look so mad
 
-my beloved [husband](https://wiki.teamfortress.com/wiki/Demoman_) of 8 years, I love you so much!
 
