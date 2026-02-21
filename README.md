@@ -8,3 +8,8 @@
 
 
 my beloved [husband](https://wiki.teamfortress.com/wiki/Demoman_) of 8 years, I love you so much!
+
+<p align="center">
+  <img src="https://files.catbox.moe/k8zml3.png"><img src="https://files.catbox.moe/3qmifg.png">
+</p>
+
