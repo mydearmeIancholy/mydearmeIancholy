@@ -10,4 +10,6 @@ GOD HE'S SUCH A BADDIE
 
 screenshots taken by yours truly 😋
 
+ <img src="https://files.catbox.moe/achc6h.gif">
+</p
 
