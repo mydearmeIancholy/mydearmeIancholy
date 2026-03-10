@@ -8,6 +8,8 @@
 
 art cred: @Anyuriic on tt
 
+strawpage will be here soon
+
  <img src="https://files.catbox.moe/achc6h.gif">
 </p
 
