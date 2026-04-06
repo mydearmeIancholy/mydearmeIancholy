@@ -8,7 +8,7 @@
 
 art cred: @Anyuriic on tt
 
-strawpage will be here soon
+check out my new strawpage :P
 
  <img src="https://files.catbox.moe/achc6h.gif">
 </p
