@@ -9,7 +9,3 @@
 art cred: @Anyuriic on tt
 
 check out my new strawpage :P
-
- <img src="https://files.catbox.moe/achc6h.gif">
-</p
-
