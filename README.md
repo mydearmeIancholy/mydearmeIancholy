@@ -7,6 +7,10 @@ FUCK YALL
 
 ♡ 5/23/26 ♡
 
+MY LOVELY DAUGHTER
+
+♡ 6/11/26 ♡
+
 <p align="center">
   <img src="https://files.catbox.moe/m83xw7.jpg">
 </p
