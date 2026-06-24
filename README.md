@@ -15,7 +15,10 @@
   <img src="https://files.catbox.moe/qkmc1a.gif">
 </p
 <p align="center">
-  <img src="https://files.catbox.moe/ho94z2.gif">
+  <img src="https://files.catbox.moe/jfnpon.gif">
+</p
+<p align="center">
+  <img src="https://files.catbox.moe/oz0ofy.gif">
 </p
 
 <p align="center">
