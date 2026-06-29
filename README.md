@@ -22,7 +22,7 @@
 </p
 
 <p align="center">
-  <img src="https://files.catbox.moe/0nubsn.png">
+  <img src="https://files.catbox.moe/d8benc.png">
 </p
 
 THANK YOU CIOUS FOR THE DRAWING
