@@ -22,7 +22,9 @@
 </p
 
 <p align="center">
-  <img src="https://files.catbox.moe/174ptd.gif">
+  <img src="https://files.catbox.moe/0nubsn.png">
 </p
 
-look at me and my son ratthew, I love him so much
+THANK YOU CIOUS FOR THE DRAWING
+
+OF MY SON RATTHEW <3
