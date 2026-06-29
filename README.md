@@ -22,5 +22,5 @@
 </p
 
 <p align="center">
-  <img src="https://files.catbox.moe/5m564m.jpg">
+  <img src="https://files.catbox.moe/5sm1we.gif">
 </p
