@@ -21,8 +21,9 @@
   <img src="https://files.catbox.moe/oz0ofy.gif">
 </p
 
+
 <p align="center">
-  <img src="https://files.catbox.moe/d8benc.png">
+  <img src="https://files.catbox.moe/ztu5gm.png">
 </p
 
 THANK YOU CIOUS FOR THE DRAWING
