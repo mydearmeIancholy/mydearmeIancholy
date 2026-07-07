@@ -3,7 +3,7 @@
 <p align="center"><img src="https://komarev.com/ghpvc/?username=mydearmeIancholy&color=fd1c60&style=flat&label=chudlings"/></p> 
 
 <p align="center">
-  <img src="https://files.catbox.moe/otpei6.gif">
+  <img src="https://files.catbox.moe/eu5boc.gif">
 </p
   <p align="center">
   <img src="https://files.catbox.moe/6ed9mq.gif">
@@ -23,7 +23,7 @@
 
 
 <p align="center">
-  <img src="https://files.catbox.moe/ztu5gm.png">
+  <img src="https://files.catbox.moe/d8benc.png">
 </p
 
 THANK YOU CIOUS FOR THE DRAWING
