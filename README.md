@@ -20,3 +20,6 @@
 <p align="center">
   <img src="https://files.catbox.moe/oz0ofy.gif">
 </p
+  
+  <img align="right" width="300" height="300"
+  src="https://files.catbox.moe/ywaw8v.gif">
