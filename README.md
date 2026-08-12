@@ -1,6 +1,7 @@
 <div align="center">
 
-<p align="center"><img src="https://komarev.com/ghpvc/?username=mydearmeIancholy&color=fd1c60&style=flat&label=chudlings"/></p> 
+
+![](https://komarev.com/ghpvc/?username=your-mydearmeIancholy&base=7500&abbreviated=true&color=fd1c60&style=for-the-badge&label=🎀)
 
 <p align="center">
   <img src="https://files.catbox.moe/eu5boc.gif">
