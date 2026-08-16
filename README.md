@@ -21,7 +21,3 @@
 <p align="center">
   <img src="https://files.catbox.moe/oz0ofy.gif">
 </p
-
-<p align="center">
-  <img src="https://files.catbox.moe/ywaw8v.gif">
-</p
