@@ -7,6 +7,4 @@
 
 ponytown nominations
 
-(power from chainsaw man)
-
 [@THE-TEMPEST](https://github.com/THE-TEMPIST)
