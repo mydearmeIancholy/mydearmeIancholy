@@ -10,7 +10,4 @@ ponytown nominations
 [@THE-TEMPEST](https://github.com/THE-TEMPIST) [@piddlesjet](https://github.com/piddlesjet) [@cosplaytown](https://github.com/cosplaytown)
 
 
-
-![](https://files.catbox.moe/brt47g.png)
-
 [leave me a message!](https://girllikeme.atabook.org/)
