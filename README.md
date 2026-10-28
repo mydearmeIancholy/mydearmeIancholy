@@ -7,4 +7,6 @@
 
 ponytown nominations
 
+(becoming pt's power + rebecca)
+
 [@THE-TEMPEST](https://github.com/THE-TEMPIST)
