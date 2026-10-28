@@ -5,9 +5,12 @@
 
 ![](https://files.catbox.moe/od3dol.png)
 
-ponytown nominations
+[leave me a message!](https://girllikeme.atabook.org/)
 
+<details>
+<summary>ponytown nominations</summary>
+<list>
+  
 [@THE-TEMPEST](https://github.com/THE-TEMPIST) [@piddlesjet](https://github.com/piddlesjet) [@cosplaytown](https://github.com/cosplaytown)
 
-
-[leave me a message!](https://girllikeme.atabook.org/)
+<div align="center">
