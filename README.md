@@ -7,9 +7,7 @@
 
 ponytown nominations
 
-(becoming pt's power + rebecca)
-
-[@THE-TEMPEST](https://github.com/THE-TEMPIST) [@piddlesjet](https://github.com/piddlesjet)
+[@THE-TEMPEST](https://github.com/THE-TEMPIST) [@piddlesjet](https://github.com/piddlesjet) [@cosplaytown](https://github.com/cosplaytown)
 
 
 
