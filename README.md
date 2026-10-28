@@ -13,4 +13,4 @@ ponytown nominations
 
 
 
-![](https://files.catbox.moe/ii6fri.png) ![](https://files.catbox.moe/hkboii.png)
+![](https://files.catbox.moe/brt47g.png)
