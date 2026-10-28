@@ -12,3 +12,5 @@ ponytown nominations
 
 
 ![](https://files.catbox.moe/brt47g.png)
+
+[leave me a message!](https://girllikeme.atabook.org/)
