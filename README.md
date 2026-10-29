@@ -5,7 +5,7 @@
 
 ![](https://files.catbox.moe/od3dol.png)
 
-[ata](https://girllikeme.atabook.org/)　♡　[straw](https://stereolove.straw.page/)
+[新book](https://girllikeme.atabook.org/)　♡　[straw](https://stereolove.straw.page/)
 
 <details>
 <summary>ponytown nominations</summary>
