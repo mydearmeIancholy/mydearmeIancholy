@@ -9,8 +9,11 @@
 
 <details>
 <summary>ponytown nominations</summary>
-<list>
-  
+<list>ᅠᅠᅠᅠᅠᅠᅠ
+
+
 [@THE-TEMPEST](https://github.com/THE-TEMPIST) [@piddlesjet](https://github.com/piddlesjet) [@cosplaytown](https://github.com/cosplaytown)
+
+[@Knox-Event](https://github.com/Knox-Event)
 
 <div align="center">
