@@ -8,10 +8,9 @@
 [新book](https://girllikeme.atabook.org/)　♡　[straw](https://stereolove.straw.page/)
 
 <details>
-<summary>ponytown nominations</summary>
-<list>ᅠᅠᅠᅠᅠᅠᅠ
-
-
+<summary>💥</summary>
+<list>
+  
 [@THE-TEMPEST](https://github.com/THE-TEMPIST) [@piddlesjet](https://github.com/piddlesjet) [@cosplaytown](https://github.com/cosplaytown)
 
 [@Knox-Event](https://github.com/Knox-Event)
